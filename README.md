@@ -1,0 +1,1 @@
+# diplom-maga
